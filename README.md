@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/Samruddhi87](https://github.com/Samruddhi87)
 
-- 📫 How to reach me **samareak87@gmail.com**
+- 📫 How to reach me **samareak87@gmail.com** / 8451083914
 
 - 📄 Know about my experiences [https://1drv.ms/b/s!Ane9O0Cv3q1BiZEBaRyyJUt_V1Y7xg?e=iCvFAl](https://1drv.ms/b/s!Ane9O0Cv3q1BiZEBaRyyJUt_V1Y7xg?e=iCvFAl)
 
